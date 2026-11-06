@@ -1,0 +1,1 @@
+el archivo realizado siguio los siguentes pasos : el orden en la plataforma
